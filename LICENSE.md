@@ -1,4 +1,4 @@
-# 
+# Élite bybit trading bot préréglages for Mac OS | Ultime bybit trading bot préréglages for PC Windows. Featuring analyse de la dynamique and trading de contrats à terme — optimized for maximum performance.
 
 
 
